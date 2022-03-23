@@ -1,1 +1,1 @@
-# theordinarywizard.github.io
+# TheOrdinaryWizard
